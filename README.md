@@ -3,7 +3,8 @@
 I assure you there isn’t an origin like this one! Introducing the cow origin, the first in the weekly series of cursed origins I’m going to make for fun!
 The cow origin is an incredibly unbalanced almost unplayable origin with more bugs then you could find under a rock.
 
-**Cow origin** 
+**Cow origin**
+
 Grass based diet: you can eat grass :D
 
 ![Ability 1](images/ability1.webp)
